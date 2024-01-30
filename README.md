@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **ml algorithms**
 
-- 📫 How to reach me **21pe3012@rgipt.ac.in**
+- 📫 How to reach me **somaabha93@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
